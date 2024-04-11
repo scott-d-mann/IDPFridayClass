@@ -1,1 +1,3 @@
 # IDPFridayClass
+
+#Scott the best lecturer ever ...
